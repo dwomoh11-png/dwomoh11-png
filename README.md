@@ -49,5 +49,5 @@ Before beginning my MSc Data Analytics programme, I worked as a mathematics educ
 ## Connect with me
 
 - [GitHub](https://github.com/dwomoh11-png)
-- LinkedIn: Add your LinkedIn profile URL here
+- LinkedIn: - [LinkedIn](https://www.linkedin.com/in/dwomoh-benjamin)
 
